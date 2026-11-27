@@ -1,7 +1,1 @@
-# pair-notes
-
-My notes.
-Favourite food: Biryani
-Favourite place: Kisii.
-Favorite place: Nanyuki
-Favourite hobby: Watching old films
+Favourite food:___
