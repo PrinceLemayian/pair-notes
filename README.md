@@ -1,1 +1,1 @@
-Favourite food:___
+Favourite food: Rice_
