@@ -1,2 +1,2 @@
 Favourite food: Chapati
-Favourite place: Kajiado
+Favourite place: Nyeri
